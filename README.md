@@ -6,7 +6,4 @@ Take a look through my projects, though beware alot of my stuff on here is purel
 
 Looking to contact me? Add my discord `@speccylad`
 
-#### Projects
-
-1. Creator and maintainer of the [IveBeenAutisticAllAlong website](https://www.ivebeenautisticallalong.com/)
-2. Owner of [deeton.xyz](https://deeton.xyz) and all sub-domains
+Are you really professional and would like to contact me via email? Send it to `deetonrushy@gmail.com`, however I don't check it much, so beware that I may just not see it.
